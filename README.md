@@ -1,1 +1,1 @@
-<img src="https://s2-techtudo.glbimg.com/weMl48nregCrBuHdrfucZE1cJAI=/0x0:1280x720/984x0/smart/filters:strip_icc()/i.s3.glbimg.com/v1/AUTH_08fbf48bc0524877943fe86e43087e7a/internal_photos/bs/2023/B/n/zcsuErTmGd7lGPXIL3QQ/image-w1280.jpg">
+
